@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **html and python**
 
-- ⚡ Fun fact **IM ironman**
+- ⚡ Fun fact **Im ironman**
 
 
 
